@@ -1,1 +1,1 @@
-Empty (Not a copywriter)
+Empty
